@@ -60,7 +60,7 @@ crystal-craft-studio/
 
 ## 👤 Designed by
 
-**Obaid Creation** · Modern, premium websites for businesses
+**OK Creation** · Modern, premium websites for businesses
 
 [LinkedIn](https://www.linkedin.com/in/obaid-khan-907a29319) · [Fiverr](https://www.fiverr.com/sardaarobaid001)
 
